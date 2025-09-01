@@ -1,1 +1,1 @@
-# AI-Automation-Challenge-Javsy-L-pez
+# AI-Automation-Challenge-Javsy-López
